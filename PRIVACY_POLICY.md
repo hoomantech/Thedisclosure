@@ -23,4 +23,4 @@ The Disclosure does not knowingly collect personal information from children und
 We may update this privacy policy. Changes will be posted on this page.
 
 ## Contact
-Questions? Contact us at: [your email]
+Questions? Contact us at: human.technologies.2026@gmail.com
